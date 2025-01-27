@@ -1,1 +1,1 @@
-# AI---Business-Intelligence-Analyst-NSDC
+# AI-Business-Intelligence-Analyst-NSDC
